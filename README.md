@@ -1,3 +1,5 @@
 # netbeans
 ya no se
-me quiero ir
+
+profe ponga trabajos faciles
+
